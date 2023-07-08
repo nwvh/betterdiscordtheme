@@ -1,0 +1,2 @@
+# betterdiscordtheme
+idk
